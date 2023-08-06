@@ -1,1 +1,1 @@
-I am interested in mechanical and chemical models
+I am interested in mechanical and chemical engineering models
